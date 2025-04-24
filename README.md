@@ -1,0 +1,1 @@
+![QRcode Snap](https://github.com/Yszdwmr/a/blob/main/snap.jpg)
